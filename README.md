@@ -1,2 +1,2 @@
 # one-of-the-best-code
-thius is great
+this is great samarthg will get the tshirt
